@@ -1,0 +1,5 @@
+- Hi, I’m @mhdrone
+- I’m just some dude
+- I’m currently learning some stuff
+- I’m looking to collaborate on some projects
+- How to reach me: some way
